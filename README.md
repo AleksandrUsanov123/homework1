@@ -1,1 +1,1 @@
-# homework1
+# Aleksandr Usanov
